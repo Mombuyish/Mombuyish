@@ -5,5 +5,3 @@
 > Never stop progressing.
 
 👨‍🚀 Yish・The Minimalist.
-
-https://yish.dev
