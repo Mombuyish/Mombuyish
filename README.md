@@ -6,6 +6,10 @@
 
 👨‍🚀 Yish・The Minimalist, BTC HODLER, Crypto follower.
 
+### [Blog/Notes]
+[Notion.site](https://yishlai.notion.site/Yish-2056c0b785af800ab39ce1efd1dfdf99)
+
+
 #### Creator & Contributor
 * [NordiumIO](http://nordium.io/)
 * [NativePHP/laravel](https://github.com/NativePHP/laravel)
