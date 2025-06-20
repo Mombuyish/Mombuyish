@@ -2,10 +2,7 @@
 
 > Never stop progressing.
 
-👨‍🚀 Yish・The Minimalist, BTC HODLER, Crypto follower.
-
-### [Blog/Notes]
-[Notion.site](https://yishlai.notion.site/Yish-2056c0b785af800ab39ce1efd1dfdf99)
+👨‍🚀 Yish・The Minimalist, BTC HODLER, Trader, Crypto follower.
 
 
 #### Creator & Contributor
